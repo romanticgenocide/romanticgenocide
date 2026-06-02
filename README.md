@@ -1,6 +1,6 @@
 <div align="center">
 
-me and my angelic [sissy](https://github.com/fishcork)
+me and my angelic [sissy](https://github.com/faSHloN)
 
 <img width="1600" height="720" alt="505" src="https://github.com/user-attachments/assets/31b17bb7-c1c3-412c-852f-c86ba667a44c" />
 
