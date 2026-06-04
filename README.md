@@ -7,5 +7,5 @@ me and my angelic [sissy](https://github.com/faSHloN)
  the fall of the two lovers.
  
 
-  [rentry](https://rentry.co/tokyowonder)‎ ‎  [ataboo](https://qoreboy.atabook.org/)
+  [rentry](https://rentry.co/tokyowonder)‎ ‎  [ataboo](https://lulutto.atabook.org/)
 [prnouns.cc](https://pronouns.cc/@xbri)
